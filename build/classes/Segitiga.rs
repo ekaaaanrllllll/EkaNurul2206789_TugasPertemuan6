@@ -1,0 +1,2 @@
+Segitiga
+Main
